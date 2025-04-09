@@ -9,6 +9,6 @@
 <p align="center"> <img src=https://64.media.tumblr.com/505d2b484120980a77cd36e2ca0ea528/cb6aaf385a2b57cb-e6/s2048x3072/51eb7506e69bb9b0cfe26c452866e5c9ca1b8f7c.pnj> </p>
 <div align="center">
 
-  [Pony Town Patreon](https://www.patreon.com/c/chronosrebirth/posts) ; [Rentry](https://rentry.co/chronos-vampire)
+  [Pony Town Patreon](https://www.patreon.com/c/chronosrebirth/posts) ; [Rentry](https://rentry.co/chronos-vampire) ; [Strawpage](https://oui-oui-baguette.straw.page/)
 
 </div>
